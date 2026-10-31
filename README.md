@@ -1,0 +1,1 @@
+# Nancy-ai-assistant-for-blind-person-
